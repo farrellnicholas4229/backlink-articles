@@ -6,6 +6,7 @@
 ### meichenwindows.com.au
 - [Aluminium Window Fly Screen Frame Fit: Why Screen-Ready Window Systems Win](meichenwindows.com.au/aluminium-window-fly-screen-frame-fit-why-screen-ready-window-systems-win.md)
 - [Aluminium Window Quotes in Melbourne: Why the Cheapest Price Usually Costs More](meichenwindows.com.au/aluminium-window-quotes-in-melbourne-why-the-cheapest-price-usually-costs-more.md)
+- [Aluminium Window Refurbishment: Why the Whole System Has to Be Restored](meichenwindows.com.au/aluminium-window-refurbishment-why-the-whole-system-has-to-be-restored.md)
 - [Aluminium Window Suppliers Brisbane: The Compliance Details Quotes Leave Out](meichenwindows.com.au/aluminium-window-suppliers-brisbane-the-compliance-details-quotes-leave-out.md)
 - [Aluminum Window Cost Per M2: The Metric That Exposes Overpriced Quotes](meichenwindows.com.au/aluminum-window-cost-per-m2-the-metric-that-exposes-overpriced-quotes.md)
 - [Aluminum Windows Made to Measure: Why Tolerance Matters Most](meichenwindows.com.au/aluminum-windows-made-to-measure-why-tolerance-matters-most.md)
