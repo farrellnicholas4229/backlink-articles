@@ -10,6 +10,7 @@
 - [Aluminium Window Suppliers Brisbane: The Compliance Details Quotes Leave Out](meichenwindows.com.au/aluminium-window-suppliers-brisbane-the-compliance-details-quotes-leave-out.md)
 - [Aluminum Window Cost Per M2: The Metric That Exposes Overpriced Quotes](meichenwindows.com.au/aluminum-window-cost-per-m2-the-metric-that-exposes-overpriced-quotes.md)
 - [Aluminum Window Not Sliding? Read the Resistance Pattern First](meichenwindows.com.au/aluminum-window-not-sliding-read-the-resistance-pattern-first.md)
+- [Aluminum Window Repair Diagnosis: Find the Real Problem First](meichenwindows.com.au/aluminum-window-repair-diagnosis-find-the-real-problem-first.md)
 - [Aluminum Windows Made to Measure: Why Tolerance Matters Most](meichenwindows.com.au/aluminum-windows-made-to-measure-why-tolerance-matters-most.md)
 - [Best Price Aluminum Windows: Why the Lowest Quote Lies](meichenwindows.com.au/best-price-aluminum-windows-why-the-lowest-quote-lies.md)
 - [Cleaning Aluminum Window Tracks Without Damaging the Finish](meichenwindows.com.au/cleaning-aluminum-window-tracks-without-damaging-the-finish.md)
