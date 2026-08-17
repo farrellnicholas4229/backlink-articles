@@ -22,6 +22,7 @@
 - [Cleaning Aluminum Window Tracks Without Damaging the Finish](meichenwindows.com.au/cleaning-aluminum-window-tracks-without-damaging-the-finish.md)
 - [External Aluminium Window Shades: The Best Way to Block Heat Before It Reaches Glass](meichenwindows.com.au/external-aluminium-window-shades-the-best-way-to-block-heat-before-it-reaches-glass.md)
 - [Fix Rattling Aluminum Windows by Finding the Moving Part](meichenwindows.com.au/fix-rattling-aluminum-windows-by-finding-the-moving-part.md)
+- [Fly Screens for Aluminum Windows: Why Attachment Fit Beats Mesh Choice](meichenwindows.com.au/fly-screens-for-aluminum-windows-why-attachment-fit-beats-mesh-choice.md)
 - [Folding Aluminium Windows: Why Panel Weight Makes or Breaks Performance](meichenwindows.com.au/folding-aluminium-windows-why-panel-weight-makes-or-breaks-performance.md)
 - [How Architectural Aluminum Windows and Doors Outlast the Building](meichenwindows.com.au/how-architectural-aluminum-windows-and-doors-outlast-the-building.md)
 - [Thermally Broken Aluminum Windows: The Frame Choice That Actually Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-the-frame-choice-that-actually-matters.md)
