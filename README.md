@@ -21,6 +21,7 @@
 - [Aluminum Windows Made to Measure: Why Tolerance Matters Most](meichenwindows.com.au/aluminum-windows-made-to-measure-why-tolerance-matters-most.md)
 - [Best Price Aluminum Windows: Why the Lowest Quote Lies](meichenwindows.com.au/best-price-aluminum-windows-why-the-lowest-quote-lies.md)
 - [Cleaning Aluminum Window Tracks Without Damaging the Finish](meichenwindows.com.au/cleaning-aluminum-window-tracks-without-damaging-the-finish.md)
+- [European Aluminum Windows: Why Fabrication Quality Matters Most](meichenwindows.com.au/european-aluminum-windows-why-fabrication-quality-matters-most.md)
 - [External Aluminium Window Shades: The Best Way to Block Heat Before It Reaches Glass](meichenwindows.com.au/external-aluminium-window-shades-the-best-way-to-block-heat-before-it-reaches-glass.md)
 - [Fix Rattling Aluminum Windows by Finding the Moving Part](meichenwindows.com.au/fix-rattling-aluminum-windows-by-finding-the-moving-part.md)
 - [Fly Screens for Aluminum Windows: Why Attachment Fit Beats Mesh Choice](meichenwindows.com.au/fly-screens-for-aluminum-windows-why-attachment-fit-beats-mesh-choice.md)
