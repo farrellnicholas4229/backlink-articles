@@ -13,6 +13,7 @@
 - [Aluminium Window Refurbishment: Why the Whole System Has to Be Restored](meichenwindows.com.au/aluminium-window-refurbishment-why-the-whole-system-has-to-be-restored.md)
 - [Aluminium Window Suppliers Brisbane: The Compliance Details Quotes Leave Out](meichenwindows.com.au/aluminium-window-suppliers-brisbane-the-compliance-details-quotes-leave-out.md)
 - [Aluminium Window Weather Stripping That Survives Thermal Shift](meichenwindows.com.au/aluminium-window-weather-stripping-that-survives-thermal-shift.md)
+- [Aluminum Window Condensation Is a Humidity Problem, Not a Frame Failure](meichenwindows.com.au/aluminum-window-condensation-is-a-humidity-problem-not-a-frame-failure.md)
 - [Aluminum Window Cost Per M2: The Metric That Exposes Overpriced Quotes](meichenwindows.com.au/aluminum-window-cost-per-m2-the-metric-that-exposes-overpriced-quotes.md)
 - [Aluminum Window Frame Dimensions: Why Rough Opening Size Costs More](meichenwindows.com.au/aluminum-window-frame-dimensions-why-rough-opening-size-costs-more.md)
 - [Aluminum Window Frame Finish Types: Why the Finish Decides the Cleaner](meichenwindows.com.au/aluminum-window-frame-finish-types-why-the-finish-decides-the-cleaner.md)
