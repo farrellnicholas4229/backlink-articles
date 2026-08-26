@@ -24,6 +24,7 @@
 - [Aluminum Windows Made to Measure: Why Tolerance Matters Most](meichenwindows.com.au/aluminum-windows-made-to-measure-why-tolerance-matters-most.md)
 - [Anodized Aluminum Colors: Why the Finish Looks Deeper Than Paint](meichenwindows.com.au/anodized-aluminum-colors-why-the-finish-looks-deeper-than-paint.md)
 - [Best Price Aluminum Windows: Why the Lowest Quote Lies](meichenwindows.com.au/best-price-aluminum-windows-why-the-lowest-quote-lies.md)
+- [Budget Aluminum Window Tiers: Match the Frame to the Job](meichenwindows.com.au/budget-aluminum-window-tiers-match-the-frame-to-the-job.md)
 - [Cleaning Aluminum Window Tracks Without Damaging the Finish](meichenwindows.com.au/cleaning-aluminum-window-tracks-without-damaging-the-finish.md)
 - [Cleaning Powder Coated Aluminium Window Frames in Direct Sunlight](meichenwindows.com.au/cleaning-powder-coated-aluminium-window-frames-in-direct-sunlight.md)
 - [Double Hung Aluminum Window Repairs: Fix the Failure Before Replacing the Frame](meichenwindows.com.au/double-hung-aluminum-window-repairs-fix-the-failure-before-replacing-the-frame.md)
