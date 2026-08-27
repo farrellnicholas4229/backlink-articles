@@ -31,6 +31,7 @@
 - [Double Hung Aluminum Window Repairs: Fix the Failure Before Replacing the Frame](meichenwindows.com.au/double-hung-aluminum-window-repairs-fix-the-failure-before-replacing-the-frame.md)
 - [European Aluminum Windows: Why Fabrication Quality Matters Most](meichenwindows.com.au/european-aluminum-windows-why-fabrication-quality-matters-most.md)
 - [External Aluminium Window Shades: The Best Way to Block Heat Before It Reaches Glass](meichenwindows.com.au/external-aluminium-window-shades-the-best-way-to-block-heat-before-it-reaches-glass.md)
+- [External Window Louvers: Why Stopping Heat Before Glass Matters](meichenwindows.com.au/external-window-louvers-why-stopping-heat-before-glass-matters.md)
 - [Fix Rattling Aluminum Windows by Finding the Moving Part](meichenwindows.com.au/fix-rattling-aluminum-windows-by-finding-the-moving-part.md)
 - [Fly Screens for Aluminum Windows: Why Attachment Fit Beats Mesh Choice](meichenwindows.com.au/fly-screens-for-aluminum-windows-why-attachment-fit-beats-mesh-choice.md)
 - [Folding Aluminium Windows: Why Panel Weight Makes or Breaks Performance](meichenwindows.com.au/folding-aluminium-windows-why-panel-weight-makes-or-breaks-performance.md)
