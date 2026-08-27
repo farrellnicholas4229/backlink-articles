@@ -39,6 +39,7 @@
 - [Thermally Broken Aluminum Doors and Windows: Why the Frame Matters Most](meichenwindows.com.au/thermally-broken-aluminum-doors-and-windows-why-the-frame-matters-most.md)
 - [Thermally Broken Aluminum Windows for Castle Hill Homes](meichenwindows.com.au/thermally-broken-aluminum-windows-for-castle-hill-homes.md)
 - [Thermally Broken Aluminum Windows: The Frame Choice That Actually Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-the-frame-choice-that-actually-matters.md)
+- [Thermally Broken Aluminum Windows: Why the Thermal Break Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-why-the-thermal-break-matters.md)
 - [Whole-Window U-Value in Aluminium Windows: What Most Specs Miss](meichenwindows.com.au/whole-window-u-value-in-aluminium-windows-what-most-specs-miss.md)
 - [Why the Aluminium Window Frame Cross Section Is the Real Performance Spec](meichenwindows.com.au/why-the-aluminium-window-frame-cross-section-is-the-real-performance-spec.md)
 <!-- backlink-building:github-repository:end -->
