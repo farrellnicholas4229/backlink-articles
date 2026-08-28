@@ -46,4 +46,5 @@
 - [Timber Look Aluminum Windows: Why Heritage Approval Depends on Appearance](meichenwindows.com.au/timber-look-aluminum-windows-why-heritage-approval-depends-on-appearance.md)
 - [Whole-Window U-Value in Aluminium Windows: What Most Specs Miss](meichenwindows.com.au/whole-window-u-value-in-aluminium-windows-what-most-specs-miss.md)
 - [Why the Aluminium Window Frame Cross Section Is the Real Performance Spec](meichenwindows.com.au/why-the-aluminium-window-frame-cross-section-is-the-real-performance-spec.md)
+- [Why Whole-Window Performance Matters in Double Glazed Aluminum Windows](meichenwindows.com.au/why-whole-window-performance-matters-in-double-glazed-aluminum-windows.md)
 <!-- backlink-building:github-repository:end -->
