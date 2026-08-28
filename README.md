@@ -25,6 +25,7 @@
 - [Aluminum Window Options by Room: The Rule That Actually Works](meichenwindows.com.au/aluminum-window-options-by-room-the-rule-that-actually-works.md)
 - [Aluminum Window Repair Diagnosis: Find the Real Problem First](meichenwindows.com.au/aluminum-window-repair-diagnosis-find-the-real-problem-first.md)
 - [Aluminum Window Sightlines: The Detail That Makes Homes Look More Expensive](meichenwindows.com.au/aluminum-window-sightlines-the-detail-that-makes-homes-look-more-expensive.md)
+- [Aluminum Windows and Doors Prices: Why Similar Quotes Can Be Miles Apart](meichenwindows.com.au/aluminum-windows-and-doors-prices-why-similar-quotes-can-be-miles-apart.md)
 - [Aluminum Windows Made to Measure: Why Tolerance Matters Most](meichenwindows.com.au/aluminum-windows-made-to-measure-why-tolerance-matters-most.md)
 - [Anodized Aluminum Colors: Why the Finish Looks Deeper Than Paint](meichenwindows.com.au/anodized-aluminum-colors-why-the-finish-looks-deeper-than-paint.md)
 - [Best Price Aluminum Windows: Why the Lowest Quote Lies](meichenwindows.com.au/best-price-aluminum-windows-why-the-lowest-quote-lies.md)
