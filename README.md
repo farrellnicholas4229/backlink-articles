@@ -15,6 +15,7 @@
 - [Aluminium Window Suppliers Brisbane: The Compliance Details Quotes Leave Out](meichenwindows.com.au/aluminium-window-suppliers-brisbane-the-compliance-details-quotes-leave-out.md)
 - [Aluminium Window Weather Stripping That Survives Thermal Shift](meichenwindows.com.au/aluminium-window-weather-stripping-that-survives-thermal-shift.md)
 - [Aluminum Colonial Windows: Why Bar Type Matters Most](meichenwindows.com.au/aluminum-colonial-windows-why-bar-type-matters-most.md)
+- [Aluminum Composite Windows: Why the Outer Shell Determines Lifespan](meichenwindows.com.au/aluminum-composite-windows-why-the-outer-shell-determines-lifespan.md)
 - [Aluminum Glass Louver Windows: Why Controlled Airflow Beats Bigger Openings](meichenwindows.com.au/aluminum-glass-louver-windows-why-controlled-airflow-beats-bigger-openings.md)
 - [Aluminum Window Condensation Is a Humidity Problem, Not a Frame Failure](meichenwindows.com.au/aluminum-window-condensation-is-a-humidity-problem-not-a-frame-failure.md)
 - [Aluminum Window Cost Per M2: The Metric That Exposes Overpriced Quotes](meichenwindows.com.au/aluminum-window-cost-per-m2-the-metric-that-exposes-overpriced-quotes.md)
