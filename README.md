@@ -7,6 +7,7 @@
 - [2 Track Aluminium Sliding Window Price: Why Matching Specs Beats the Lowest Quote](meichenwindows.com.au/2-track-aluminium-sliding-window-price-why-matching-specs-beats-the-lowest-quote.md)
 - [Aluminium Canopy Windows: Why Grade Determines Lifespan and Cost](meichenwindows.com.au/aluminium-canopy-windows-why-grade-determines-lifespan-and-cost.md)
 - [Aluminium Insert Windows: The Existing Frame Decides the Outcome](meichenwindows.com.au/aluminium-insert-windows-the-existing-frame-decides-the-outcome.md)
+- [Aluminium Sliding Window Costs: Why the Cheapest Quote Usually Costs More](meichenwindows.com.au/aluminium-sliding-window-costs-why-the-cheapest-quote-usually-costs-more.md)
 - [Aluminium Sliding Windows and Doors: Why the Weakest Component Decides Lifespan](meichenwindows.com.au/aluminium-sliding-windows-and-doors-why-the-weakest-component-decides-lifespan.md)
 - [Aluminium Window Fixing Details: The Hidden Interface Behind Leak-Free Installs](meichenwindows.com.au/aluminium-window-fixing-details-the-hidden-interface-behind-leak-free-installs.md)
 - [Aluminium Window Fly Screen Frame Fit: Why Screen-Ready Window Systems Win](meichenwindows.com.au/aluminium-window-fly-screen-frame-fit-why-screen-ready-window-systems-win.md)
