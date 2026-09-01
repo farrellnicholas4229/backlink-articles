@@ -46,6 +46,7 @@
 - [Folding Aluminium Windows: Why Panel Weight Makes or Breaks Performance](meichenwindows.com.au/folding-aluminium-windows-why-panel-weight-makes-or-breaks-performance.md)
 - [Galvanic Corrosion in Aluminum Window Stays: Why the Screws Fail First](meichenwindows.com.au/galvanic-corrosion-in-aluminum-window-stays-why-the-screws-fail-first.md)
 - [How Architectural Aluminum Windows and Doors Outlast the Building](meichenwindows.com.au/how-architectural-aluminum-windows-and-doors-outlast-the-building.md)
+- [Sliding Aluminium Window Lock Compatibility: Why Fit Matters More Than Force](meichenwindows.com.au/sliding-aluminium-window-lock-compatibility-why-fit-matters-more-than-force.md)
 - [Thermally Broken Aluminum Doors and Windows: Why the Frame Matters Most](meichenwindows.com.au/thermally-broken-aluminum-doors-and-windows-why-the-frame-matters-most.md)
 - [Thermally Broken Aluminum Windows for Castle Hill Homes](meichenwindows.com.au/thermally-broken-aluminum-windows-for-castle-hill-homes.md)
 - [Thermally Broken Aluminum Windows: The Frame Choice That Actually Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-the-frame-choice-that-actually-matters.md)
