@@ -49,6 +49,7 @@
 - [Thermally Broken Aluminum Doors and Windows: Why the Frame Matters Most](meichenwindows.com.au/thermally-broken-aluminum-doors-and-windows-why-the-frame-matters-most.md)
 - [Thermally Broken Aluminum Windows for Castle Hill Homes](meichenwindows.com.au/thermally-broken-aluminum-windows-for-castle-hill-homes.md)
 - [Thermally Broken Aluminum Windows: The Frame Choice That Actually Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-the-frame-choice-that-actually-matters.md)
+- [Thermally Broken Aluminum Windows: Why the Thermal Break Decides Performance](meichenwindows.com.au/thermally-broken-aluminum-windows-why-the-thermal-break-decides-performance.md)
 - [Thermally Broken Aluminum Windows: Why the Thermal Break Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-why-the-thermal-break-matters.md)
 - [Timber Look Aluminum Windows: Why Heritage Approval Depends on Appearance](meichenwindows.com.au/timber-look-aluminum-windows-why-heritage-approval-depends-on-appearance.md)
 - [uPVC vs Aluminium Windows: The Lifecycle Choice That Prevents Decades of Regret](meichenwindows.com.au/upvc-vs-aluminium-windows-the-lifecycle-choice-that-prevents-decades-of-regret.md)
