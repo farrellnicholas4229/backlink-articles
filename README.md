@@ -19,6 +19,7 @@
 - [Aluminium Window Weather Stripping That Survives Thermal Shift](meichenwindows.com.au/aluminium-window-weather-stripping-that-survives-thermal-shift.md)
 - [Aluminum Colonial Windows: Why Bar Type Matters Most](meichenwindows.com.au/aluminum-colonial-windows-why-bar-type-matters-most.md)
 - [Aluminum Composite Windows: Why the Outer Shell Determines Lifespan](meichenwindows.com.au/aluminum-composite-windows-why-the-outer-shell-determines-lifespan.md)
+- [Aluminum Double Hung Windows: Why Ventilation Beats Style in Aussie Homes](meichenwindows.com.au/aluminum-double-hung-windows-why-ventilation-beats-style-in-aussie-homes.md)
 - [Aluminum Glass Louver Windows: Why Controlled Airflow Beats Bigger Openings](meichenwindows.com.au/aluminum-glass-louver-windows-why-controlled-airflow-beats-bigger-openings.md)
 - [Aluminum Sliding Window Configuration: Why Track Count Decides the Outcome](meichenwindows.com.au/aluminum-sliding-window-configuration-why-track-count-decides-the-outcome.md)
 - [Aluminum Window Condensation Is a Humidity Problem, Not a Frame Failure](meichenwindows.com.au/aluminum-window-condensation-is-a-humidity-problem-not-a-frame-failure.md)
