@@ -29,6 +29,7 @@
 - [Aluminum Window Frame Finish Types: Why the Finish Decides the Cleaner](meichenwindows.com.au/aluminum-window-frame-finish-types-why-the-finish-decides-the-cleaner.md)
 - [Aluminum Window Not Sliding? Read the Resistance Pattern First](meichenwindows.com.au/aluminum-window-not-sliding-read-the-resistance-pattern-first.md)
 - [Aluminum Window Options by Room: The Rule That Actually Works](meichenwindows.com.au/aluminum-window-options-by-room-the-rule-that-actually-works.md)
+- [Aluminum Window Renovation: Why the Frame Usually Deserves a Second Life](meichenwindows.com.au/aluminum-window-renovation-why-the-frame-usually-deserves-a-second-life.md)
 - [Aluminum Window Repair Diagnosis: Find the Real Problem First](meichenwindows.com.au/aluminum-window-repair-diagnosis-find-the-real-problem-first.md)
 - [Aluminum Window Sightlines: The Detail That Makes Homes Look More Expensive](meichenwindows.com.au/aluminum-window-sightlines-the-detail-that-makes-homes-look-more-expensive.md)
 - [Aluminum Windows and Doors Prices: Why Similar Quotes Can Be Miles Apart](meichenwindows.com.au/aluminum-windows-and-doors-prices-why-similar-quotes-can-be-miles-apart.md)
