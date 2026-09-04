@@ -10,6 +10,7 @@
 - [Aluminium Security Windows: The Weakest Link Is Usually the Frame](meichenwindows.com.au/aluminium-security-windows-the-weakest-link-is-usually-the-frame.md)
 - [Aluminium Sliding Window Costs: Why the Cheapest Quote Usually Costs More](meichenwindows.com.au/aluminium-sliding-window-costs-why-the-cheapest-quote-usually-costs-more.md)
 - [Aluminium Sliding Windows and Doors: Why the Weakest Component Decides Lifespan](meichenwindows.com.au/aluminium-sliding-windows-and-doors-why-the-weakest-component-decides-lifespan.md)
+- [Aluminium Sliding Windows Sydney: Why Specification Matters More Than the Frame](meichenwindows.com.au/aluminium-sliding-windows-sydney-why-specification-matters-more-than-the-frame.md)
 - [Aluminium Window Fixing Details: The Hidden Interface Behind Leak-Free Installs](meichenwindows.com.au/aluminium-window-fixing-details-the-hidden-interface-behind-leak-free-installs.md)
 - [Aluminium Window Fly Screen Frame Fit: Why Screen-Ready Window Systems Win](meichenwindows.com.au/aluminium-window-fly-screen-frame-fit-why-screen-ready-window-systems-win.md)
 - [Aluminium Window Frame Parts Names: Why Function Beats Guesswork](meichenwindows.com.au/aluminium-window-frame-parts-names-why-function-beats-guesswork.md)
