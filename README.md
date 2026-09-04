@@ -50,6 +50,7 @@
 - [Fix Rattling Aluminum Windows by Finding the Moving Part](meichenwindows.com.au/fix-rattling-aluminum-windows-by-finding-the-moving-part.md)
 - [Fly Screens for Aluminum Windows: Why Attachment Fit Beats Mesh Choice](meichenwindows.com.au/fly-screens-for-aluminum-windows-why-attachment-fit-beats-mesh-choice.md)
 - [Folding Aluminium Windows: Why Panel Weight Makes or Breaks Performance](meichenwindows.com.au/folding-aluminium-windows-why-panel-weight-makes-or-breaks-performance.md)
+- [Gable Window Ventilation: Why Aluminum Gable Windows Need a Real Air Path](meichenwindows.com.au/gable-window-ventilation-why-aluminum-gable-windows-need-a-real-air-path.md)
 - [Galvanic Corrosion in Aluminum Window Stays: Why the Screws Fail First](meichenwindows.com.au/galvanic-corrosion-in-aluminum-window-stays-why-the-screws-fail-first.md)
 - [Glazing Packers in Aluminum Windows: The Hidden Cause of Cracks](meichenwindows.com.au/glazing-packers-in-aluminum-windows-the-hidden-cause-of-cracks.md)
 - [Gray Aluminum Window Frame Shades: How Undertone Decides the Final Look](meichenwindows.com.au/gray-aluminum-window-frame-shades-how-undertone-decides-the-final-look.md)
