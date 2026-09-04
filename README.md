@@ -53,6 +53,7 @@
 - [Gray Aluminum Window Frame Shades: How Undertone Decides the Final Look](meichenwindows.com.au/gray-aluminum-window-frame-shades-how-undertone-decides-the-final-look.md)
 - [How Architectural Aluminum Windows and Doors Outlast the Building](meichenwindows.com.au/how-architectural-aluminum-windows-and-doors-outlast-the-building.md)
 - [Sliding Aluminium Window Lock Compatibility: Why Fit Matters More Than Force](meichenwindows.com.au/sliding-aluminium-window-lock-compatibility-why-fit-matters-more-than-force.md)
+- [Slimline Aluminium Windows: Why Sightline Width Is the Real Trade-Off](meichenwindows.com.au/slimline-aluminium-windows-why-sightline-width-is-the-real-trade-off.md)
 - [Thermally Broken Aluminum Doors and Windows: Why the Frame Matters Most](meichenwindows.com.au/thermally-broken-aluminum-doors-and-windows-why-the-frame-matters-most.md)
 - [Thermally Broken Aluminum Windows for Castle Hill Homes](meichenwindows.com.au/thermally-broken-aluminum-windows-for-castle-hill-homes.md)
 - [Thermally Broken Aluminum Windows: The Frame Choice That Actually Matters](meichenwindows.com.au/thermally-broken-aluminum-windows-the-frame-choice-that-actually-matters.md)
