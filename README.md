@@ -51,6 +51,7 @@
 - [Fly Screens for Aluminum Windows: Why Attachment Fit Beats Mesh Choice](meichenwindows.com.au/fly-screens-for-aluminum-windows-why-attachment-fit-beats-mesh-choice.md)
 - [Folding Aluminium Windows: Why Panel Weight Makes or Breaks Performance](meichenwindows.com.au/folding-aluminium-windows-why-panel-weight-makes-or-breaks-performance.md)
 - [Galvanic Corrosion in Aluminum Window Stays: Why the Screws Fail First](meichenwindows.com.au/galvanic-corrosion-in-aluminum-window-stays-why-the-screws-fail-first.md)
+- [Glazing Packers in Aluminum Windows: The Hidden Cause of Cracks](meichenwindows.com.au/glazing-packers-in-aluminum-windows-the-hidden-cause-of-cracks.md)
 - [Gray Aluminum Window Frame Shades: How Undertone Decides the Final Look](meichenwindows.com.au/gray-aluminum-window-frame-shades-how-undertone-decides-the-final-look.md)
 - [How Architectural Aluminum Windows and Doors Outlast the Building](meichenwindows.com.au/how-architectural-aluminum-windows-and-doors-outlast-the-building.md)
 - [Sliding Aluminium Window Lock Compatibility: Why Fit Matters More Than Force](meichenwindows.com.au/sliding-aluminium-window-lock-compatibility-why-fit-matters-more-than-force.md)
