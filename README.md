@@ -25,6 +25,7 @@
 - [Aluminum Sliding Window Configuration: Why Track Count Decides the Outcome](meichenwindows.com.au/aluminum-sliding-window-configuration-why-track-count-decides-the-outcome.md)
 - [Aluminum Window Condensation Is a Humidity Problem, Not a Frame Failure](meichenwindows.com.au/aluminum-window-condensation-is-a-humidity-problem-not-a-frame-failure.md)
 - [Aluminum Window Cost Per M2: The Metric That Exposes Overpriced Quotes](meichenwindows.com.au/aluminum-window-cost-per-m2-the-metric-that-exposes-overpriced-quotes.md)
+- [Aluminum Window Frame Covering: Moisture Control Decides Whether It Lasts](meichenwindows.com.au/aluminum-window-frame-covering-moisture-control-decides-whether-it-lasts.md)
 - [Aluminum Window Frame Dimensions: Why Rough Opening Size Costs More](meichenwindows.com.au/aluminum-window-frame-dimensions-why-rough-opening-size-costs-more.md)
 - [Aluminum Window Frame Finish Types: Why the Finish Decides the Cleaner](meichenwindows.com.au/aluminum-window-frame-finish-types-why-the-finish-decides-the-cleaner.md)
 - [Aluminum Window Not Sliding? Read the Resistance Pattern First](meichenwindows.com.au/aluminum-window-not-sliding-read-the-resistance-pattern-first.md)
